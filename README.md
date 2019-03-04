@@ -38,7 +38,7 @@
 
 [Lucy地道美语_英语国际音标_元音音标](https://v.youku.com/v_show/id_XNDA4NDY3NzkzNg==.html?spm=a2h3j.8428770.3416059.1)
 
-[Lucy地道美语_英语国际音标_辅音音标]()
+[Lucy地道美语_英语国际音标_辅音音标](https://v.youku.com/v_show/id_XNDA4NDY3OTM4MA==.html?spm=a2h3j.8428770.3416059.1)
 
 [BBC广播台英语音标教学视频](https://v.qq.com/x/page/y0713xduc7s.html)
 
